@@ -1,6 +1,6 @@
 <div align="center">
 
-<br>![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=i_like_watching_you_from_here,_you_look_so_small.&color=000000)
+<br>![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=stalking_you&color=000000)
 
 ${\textsf{\color{#fffff}"hey kid. i'm drunk and i love you."}}$
 
