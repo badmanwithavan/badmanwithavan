@@ -6,6 +6,6 @@ ${\textsf{\color{#fffff}"hey kid. i'm drunk and i love you."}}$
 
 <br><img src="https://64.media.tumblr.com/4ab636bd32c2485f6faa253ea1aa5524/07df0596ec81118e-d5/s1280x1920/e2e1fede0c50433c8d726c44e1aab967e32f6088.pnj" width="500px">
 
-<br>${\textsf{\color{#fffff}alter account⠀⠀pro freak⠀⠀please c+h ://-)}}$
+<br>${\textsf{\color{#fffff}alter account⠀⠀pro-freak⠀⠀please c+h ://-)}}$
 
-<br>[strawpage](https://theswift.straw.page) 
+[strawpage](https://theswift.straw.page) 
