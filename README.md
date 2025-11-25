@@ -10,3 +10,5 @@
 
 [strawpage](https://theswift.straw.page)⠀⠀[mmeeee](https://open.spotify.com/track/05knoKA0jpY5TZVKVtLmkB?si=0b24d7b754674348)
 
+<br>${\textsf{\color{#fffff}swiift⠀is⠀alternate + dwellerkin,⠀he⠀biologically}}$
+<br>${\textsf{\color{#fffff}identifies⠀as⠀such⠀and⠀has⠀frequent⠀kinshifts}}$
