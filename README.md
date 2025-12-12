@@ -8,6 +8,6 @@
 
 <br>${\textsf{\color{#fffff}alter account⠀⠀please c+h :-(}}$
 
-[strawpage](https://fuckshowers.straw.page)⠀⠀[hi](https://open.spotify.com/track/1mQ9I9Z9FkQ49tGYfUsz3t?si=437ec373bb474b81)
+[strawpage](https://fuckshowers.straw.page)
 
 
