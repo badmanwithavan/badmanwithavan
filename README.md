@@ -8,6 +8,12 @@
 
 <br>${\textsf{\color{#fffff}alter account⠀⠀please c+h}}$
 
-[strawpage](https://fuckshowers.straw.page)
+<div align="center">
+<details>
+<summary>${\textsf{\color{#fffff}read}}$</summary>
 
-
+${\textsf{\color{#fffff}not pro-fiction, just sits with pro-fic friends}}$
+<br>${\textsf{\color{#fffff}adult, under 16s dni unless tescos friend}}$
+<br>${\textsf{\color{#fffff}severe mood swings, gen anxiety disorder}}$
+<br>${\textsf{\color{#fffff}typically no responses}}$
+</details>
